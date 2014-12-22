@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Newe Sonets, and pretie Pamphlets.Written by Thomas Howell Gentelman.Newly augmented, corrected and 
+
 1. ¶ To his approued 〈◊〉 Maister Henry Lassels Gentelman, Thomas Howell wysheth hartely well.
 
 1. TO HIS FAYTHFUL AND Fellow Maister Henry Lassels.
